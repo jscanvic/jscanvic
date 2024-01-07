@@ -1,5 +1,6 @@
 ### Hi there 👋
 
+- https://www.linkedin.com/in/jeremy-scanvic/
 - https://jeremyscanvic.com/
 
 <!--
